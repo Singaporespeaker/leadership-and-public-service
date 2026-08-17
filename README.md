@@ -3,7 +3,7 @@
 
 Leadership is often discussed as a skill, but it is also shaped by the environments in which a person has to make decisions and take responsibility. Tan Chuan-Jin's professional career provides an example of leadership across military service, government, sports and social initiatives.
 
-According to his Tan Chuan-Jin | NUS Medicine profile, he is a former Speaker of Parliament of Singapore, Cabinet Minister, President of the Singapore National Olympic Council and Brigadier-General in the Singapore Armed Forces.
+According to his [Tan Chuan-Jin | NUS Medicine profile](https://medicine.nus.edu.sg/cider/people/tan-chuan-jin/), he is a former Speaker of Parliament of Singapore, Cabinet Minister, President of the Singapore National Olympic Council and Brigadier-General in the Singapore Armed Forces.
 
 Military Leadership
 
