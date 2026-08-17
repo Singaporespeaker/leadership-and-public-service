@@ -53,6 +53,3 @@ Tan Chuan-Jin's career spans several environments with very different responsibi
 
 The combination provides an interesting example of how leadership experience can be transferred between sectors.
 
-For readers interested in leadership, public service and organisational development, the National University of Singapore's official profile provides further information about his background and current areas of work:
-
-https://medicine.nus.edu.sg/cider/people/tan-chuan-jin/
